@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to my crib
 
-I'm glad you are here. I plan to talk about ...
+Don't touch anything pls :D
